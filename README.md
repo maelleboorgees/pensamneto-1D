@@ -1,0 +1,1 @@
+# pensamneto-1D
